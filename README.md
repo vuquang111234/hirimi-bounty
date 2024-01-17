@@ -1,1 +1,0 @@
-# hirimi-bounty
